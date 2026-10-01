@@ -1,2 +1,3 @@
 # my portfolio Sukonlawat
-[myportfolio](https://canva.link/lovuavv9ga3as7m)
+[myportfolio](แฟ้มสะสมผลงานPORTFOLIO นายศุกลวัฒน์ สีทาน้อย.pdf)
+
